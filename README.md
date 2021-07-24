@@ -1,8 +1,6 @@
 ### This is Ether Lin
-<img align="right" src="https://github-readme-stats.vercel.app/api?username=Lin-Ether&show_icons=true&icon_color=0366d6&bg_color=ffffff&hide_title=true&hide=contribs&include_all_commits=true" alt="Ether Lin's github stats"/>
 
-
-- 📖 A high school student from China
-- 🎓 Offer holder in Mathematics and Philosophy, University of Oxford
-- 💭 Currently interested in Web Development
-- 🌐 Personal Website: [etherlin.top](https://etherlin.top)
+- Nvm who tf I am, idgaf to GitHub.
+- Anyone who tryna debate politics with me will be swept into my block list.
+- Reject fairy tales, return to reality. Yes I mean you, you fucking narcissists.
+- Coding is the incubator for rampant free will. You bitches think you are omnipotent?
