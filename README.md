@@ -1,3 +1,4 @@
 ### This is Ether Lin
 
-- Occasionally on GitHub
+- MMathPhil @ Balliol College, Oxford
+- Interested in Logic, Set Theory and Philosophy of Mathematics
