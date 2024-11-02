@@ -1,4 +1,4 @@
 ### This is Ether Lin
 
 - MMathPhil @ Balliol College, Oxford
-- Interested in Logic, Set Theory, Philosophy of Mathematics and History of Analytic Philosophy
+- Interested in Philosophy of Wittgenstein, Philosophy of Science, Philosophy of Mathematics, Logic and Ethics.
