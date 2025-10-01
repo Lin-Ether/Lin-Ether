@@ -1,4 +1,4 @@
 ### Intro
 
-- MMathPhil @ Balliol College, Oxford
-- Interested in Philosophy of Wittgenstein, Philosophy of Science, Philosophy of Mathematics, Logic and Ethics.
+- MMathPhil @ Balliol College, Oxford, MSc Philosophy of Science @ LSE
+- Interested in Philosophy of Science, Sociology of Science, Philosophy of Wittgenstein and Conceptual Engineering
